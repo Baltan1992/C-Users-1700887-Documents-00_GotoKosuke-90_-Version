@@ -1,1 +1,0 @@
-# C-Users-1700887-Documents-00_GotoKosuke-90_-Version
